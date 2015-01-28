@@ -1,1 +1,4 @@
-# regras
+1.3 CONVIVENCIA
+
+  PRESTE ATENÇÕA
+  
